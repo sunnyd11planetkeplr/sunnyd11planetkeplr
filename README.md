@@ -1,16 +1,55 @@
-## Hi there 👋
+# INTRO and RP BOUNDARIES (⁠ﾉ⁠◕⁠ヮ⁠◕⁠)⁠ﾉ⁠*⁠.⁠✧
 
-<!--
-**sunnyd11planetkeplr/sunnyd11planetkeplr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## About Me
+Name's Sunny / Sam , 20 years old 
+BSD artist
+I'm transneutral enby mac agender :)
+oriented Aroace 🧡💛🤍🩵💙
 
-Here are some ideas to get you started:
+### microlabels cuz I like them :
+ demialterous/quasiromantic/quoiromantique/demigreyromantic/ belluromantic 
+ 
+ apothisexual / ansexual (repulsed ace)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ Diamoric poly-oriented (NOT POLYAMORY)
+
+> [!NOTE]
+> I'm an overthinker!!! and I have mood swings 
+
+
+
+## Fandoms & Ships
+fandom I'm interested in : mainly BSD , but also Jurassic park, httyd, murder drones ect 
+
+mainly on ponytown cuz my friend asked me to join , create pony skins , and a friendly rp or small talks 
+
+### Ships & HCs
+I'm an ace4ace SKK monoshipper!! but I'm also open to other ships as long they're not problematic (also SKK is the only romantic ship I ship)
+
+**about the characters:** 
+ dazai Omniromantic repulsed Aegosexual 
+ chuuya demiaroace and gay
+ Atsushi is aroace 
+ Aku is aroace 
+... basically most of my HCS falls under the aroace spec!!
+
+> [!WARNING]
+> I DO NOT SHIP TEEN SKK 
+> dark era SKK I do not ship them in a committment relationship but more like situationship in denial 
+
+
+
+## RP rules : 
+* no 18+ talks 
+* preferably platonic/rival, but I can accept ship rp as long as it's SFW and not weird .. BECAUSE I don't know your age AND because I'm the repulsed type of aroace individual:P
+  oh and i can accept angst 
+* flirting outside the RP/ ooc is a BIG no 
+* I prefer if I ask me first even if I'll mostly just follow the flux in character 
+
+> [!TIP]
+> asking to be moot is open ! as long as you're not in my DNI 
+
+
+> [!CAUTION]
+> **DARKSHIPERS DNI!!!** (includes pdf, grooming, inc£st, abuse, ect)
+
