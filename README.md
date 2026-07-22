@@ -13,8 +13,8 @@ oriented Aroace 🧡💛🤍🩵💙
 
  Diamoric poly-oriented (NOT POLYAMORY)
 
-> [!NOTE]
-> I'm an overthinker!!! and I have mood swings 
+note:
+ I'm an overthinker!!! and I have mood swings 
 
 
 
@@ -33,9 +33,8 @@ I'm an ace4ace SKK monoshipper!! but I'm also open to other ships as long they'r
  Aku is aroace 
 ... basically most of my HCS falls under the aroace spec!!
 
-> [!WARNING]
-> I DO NOT SHIP TEEN SKK 
-> dark era SKK I do not ship them in a committment relationship but more like situationship in denial 
+ I DO NOT SHIP TEEN SKK 
+ dark era SKK I do not ship them in a committment relationship but more like situationship in denial 
 
 
 
@@ -46,10 +45,10 @@ I'm an ace4ace SKK monoshipper!! but I'm also open to other ships as long they'r
 * flirting outside the RP/ ooc is a BIG no 
 * I prefer if I ask me first even if I'll mostly just follow the flux in character 
 
-> [!TIP]
-> asking to be moot is open ! as long as you're not in my DNI 
+
+asking to be moot is open ! as long as you're not in my DNI 
 
 
-> [!CAUTION]
-> **DARKSHIPERS DNI!!!** (includes pdf, grooming, inc£st, abuse, ect)
+
+**DARKSHIPERS DNI!!!** (includes pdf, grooming, inc£st, abuse, ect)
 
