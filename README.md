@@ -43,10 +43,10 @@ I'm an ace4ace SKK monoshipper!! but I'm also open to other ships as long they'r
 * preferably platonic/rival, but I can accept ship rp as long as it's SFW and not weird .. BECAUSE I don't know your age AND because I'm the repulsed type of aroace individual:P
   oh and i can accept angst 
 * flirting outside the RP/ ooc is a BIG no 
-* I prefer if I ask me first even if I'll mostly just follow the flux in character 
+* I prefer if u ask me first even if I'll mostly just follow the flux in character 
 
 
-asking to be moot is open ! as long as you're not in my DNI 
+*asking to be moot is open ! as long as you're not in my DNI*
 
 
 
