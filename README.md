@@ -11,7 +11,7 @@ oriented Aroace 🧡💛🤍🩵💙
  
  apothisexual / ansexual (repulsed ace)
 
- Diamoric poly-oriented (NOT POLYAMORY)
+ Diamoric poly-oriented (NOT POLYAMORY, ppl tend to mix them up)
 
 note:
  I'm an overthinker!!! and I have mood swings 
