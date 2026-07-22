@@ -27,10 +27,10 @@ mainly on ponytown cuz my friend asked me to join , create pony skins , and a fr
 I'm an ace4ace SKK monoshipper!! but I'm also open to other ships as long they're not problematic (also SKK is the only romantic ship I ship)
 
 **about the characters:** 
- dazai Omniromantic repulsed Aegosexual 
- chuuya demiaroace and gay
- Atsushi is aroace 
- Aku is aroace 
+ dazai Omniromantic repulsed Aegosexual ,
+ chuuya demiaroace and gay,
+ Atsushi is aroace ,
+ Aku is aroace ,
 ... basically most of my HCS falls under the aroace spec!!
 
  I DO NOT SHIP TEEN SKK 
