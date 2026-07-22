@@ -33,7 +33,7 @@ I'm an ace4ace SKK monoshipper!! but I'm also open to other ships as long they'r
  Aku is aroace ,
 ... basically most of my HCS falls under the aroace spec!!
 
- I DO NOT SHIP TEEN SKK 
+ I DO NOT SHIP TEEN SKK ,
  dark era SKK I do not ship them in a committment relationship but more like situationship in denial 
 
 
