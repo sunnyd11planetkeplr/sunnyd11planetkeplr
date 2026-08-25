@@ -7,7 +7,7 @@ I'm transneutral enby mac agender :)
 oriented Aroace 🧡💛🤍🩵💙
 
 ### microlabels cuz I like them :
- demialterous/quasiromantic/quoiromantique/demigreyromantic/ belluromantic 
+ demialterous/quoiromantique
  
  apothisexual / ansexual (repulsed ace)
 
