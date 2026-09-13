@@ -3,7 +3,7 @@
 ## About Me
 Name's Sunny / Sam , 20 years old 
 BSD artist
-I'm transneutral enby mac agender :)
+I'm transneutral agenderflux :)
 oriented Aroace 🧡💛🤍🩵💙
 
 ### microlabels cuz I like them :
