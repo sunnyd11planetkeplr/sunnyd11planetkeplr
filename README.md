@@ -1,7 +1,7 @@
 # INTRO and RP BOUNDARIES (⁠ﾉ⁠◕⁠ヮ⁠◕⁠)⁠ﾉ⁠*⁠.⁠✧
 
 ## About Me
-Name's Sunny / Sam , 20 years old 
+Name's Sunny / Sam , 21 years old 
 BSD artist
 I'm transneutral agenderflux :)
 oriented Aroace 🧡💛🤍🩵💙
